@@ -5,9 +5,6 @@
 - 💞️ I’m looking to collaborate on Python related project to get more knowledge in this.
 - 📫 You can reach me via email
 
-Find me on Social Media Profile:
 
-<a href="https://www.linkedin.com/in/alam-pervez/">My Linkedin Profile</a>
-   
     
 
